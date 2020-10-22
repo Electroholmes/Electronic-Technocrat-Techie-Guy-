@@ -6,8 +6,6 @@
 
 <h4> Follow us on:- 
   
-  Youtube:- http://www.youtube.com/c/ElectronicTechnocrat?sub_confirmation=1
-
 Whatsapp group:- https://chat.whatsapp.com/CeRGCmqTnrx51MGcfgcFYZ
  
 Instagram:- https://instagram.com/electronic_technocrat?igshid=1no002efd5h6h
